@@ -2,3 +2,6 @@
 ========
 
       sand_[/internal/server/error_100100010000010/eternal://hpttvtfA/]_box//boooooomb]=damage////extreme//[damage]
+    <txt.hahahahahahahahah loser> <png.file ninja>
+    
+           <101001110111011010110101101100101110100101100111010010111011010010011010010110100100101101100110110101101101101011010110111101011110001010000>
